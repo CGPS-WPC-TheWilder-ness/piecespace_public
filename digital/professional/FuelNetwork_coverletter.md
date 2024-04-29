@@ -1,6 +1,8 @@
-**Welcome!**
+**Welcome! I'm Blair.**
 
-**This is an aspect of my peace process directed to Fuel Network and Co.; despite its lengthiness, I hope this written piece provides your overall process with data/information/insight helpful to your hard problem on hand,**
+**This is a sample written composition piece intended for inspection by Fuel Network and Co.;**
+
+**despite its lengthiness, I hope this written piece provides your overall process with data/information/insight helpful for whatever your hard problem on hand might be at the time being,**
 
 In my world, the first thing I do is treat peace as a computational, piecewise-continuous, evolutionary, optimization _process_—not a product. Everything else follows from there, the peace-process always comes first. This is my unique value proposition and personal operating platform.
 
@@ -45,7 +47,7 @@ I would be overjoyed to discover a great cultural fit with Fuel Labs, and if inv
 
 _**AI use disclaimer:**_
 
-_This letter was generated with actual intelligence (my world piece computer’s little-ai brain process piece)._
+_This letter was generated using actual intelligence (my world piece computer’s little-ai brain process piece)._
 
 _**little-ai use disclaimer:**_
 
@@ -54,4 +56,3 @@ _This letter is deliberately long and unconventional, strategic, sometimes tacti
 _**\*peace process technical note:**_
 
 _The optimization process that I deploy in my personal world piece computer is an extension by analogy from variational mechanics in modern physics to an analogous subjective form that espouses the same least-action principle, with some embellishments. I would be happy to speak on that project directly, or write up a technical piece that outlines the toy-model gestalt of the subjective physics/mechanics developing._
-![image](https://github.com/worldpiececomputer-blairmunroakusa/piecespace_public/assets/69293813/52f428bf-fcea-4c11-87d7-34bb2ec4bb94)
